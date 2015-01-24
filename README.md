@@ -1,0 +1,1 @@
+# gorijapan.github.io
